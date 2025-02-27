@@ -33,3 +33,7 @@ Users can **swipe-to-delete** recent calculations, seamlessly removing them from
 
 
 
+
+
+Uploading WhatsApp Video 2025-02-27 at 19.48.43.mp4…
+
